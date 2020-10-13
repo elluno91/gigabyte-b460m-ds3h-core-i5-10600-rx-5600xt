@@ -1,0 +1,1 @@
+# gigabyte-b460m-ds3h-core-i5-10600-rx-5600xt
